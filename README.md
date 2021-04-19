@@ -1,1 +1,1 @@
-# singing_competition
+# join_my_singing_class
